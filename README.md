@@ -1,13 +1,13 @@
-# Godrej New Launch in Sector 146 Noida
-Godrej Properties, a renowned name in the real estate industry, has unveiled its latest residential project, Godrej Sector 146 Noida.
+# Godrej Tropical Isle - Godrej New Launch in Sector 146 Noida
+Godrej Properties, a renowned name in the real estate industry, has unveiled its latest residential project, Godrej Tropical Isle located in Sector 146 Noida.
 
-For details and information, please visit :: [Godrej Sector 146 Noida - Tropical Isle](https://tropicalisle.github.io)
+For details and information, please visit :: [Godrej Sector 146 Noida - Godrej Tropical Isle](https://tropicalisle.github.io)
 
 __________
 
 
-### Real Estate Marketing - Property Website 
-A simple property website. This website is about an apartment project in Sector 146 Noida.
+### New Launch Real Estate Project - Noida 
+Luxury apartment project in Sector 146 Noida.
 
 __________
 
